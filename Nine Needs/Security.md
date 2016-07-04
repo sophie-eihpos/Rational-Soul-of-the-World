@@ -12,7 +12,7 @@ In the positive pole of Trust, people with Security are stable and grounded. Sin
 
 In the negative pole of Fear, there's an irrational sense of apprehension and caution, and like Stubbornness, a refusal to move forward or confront life in any way. In extreme cases the person actually becomes too terrified to move.
 
-# How the Need of Security Affects the 1st Chakra
+### How the Need of Security Affects the 1st Chakra
 
 The 1st chakra governs basic survival issues and the will to live. An important task of this chakra is to learn to be fully present in the body. By staying in the positive pole of Security and avoiding fear-based reactions to events in life, the 1st chakra remains more balanced and healthy.
 
@@ -24,13 +24,11 @@ Finding an attainable goal can be the first step towards re-balancing the 1st ch
 
 Positive affirmations to try are:
 
-I am safe and protected.
- 
-I am loved.
- 
-I release all negativity from my life.
+    - I am safe and protected.
+    - I am loved.
+    - I release all negativity from my life.
 
-# 7 Levels of Security
+### 7 Levels of Security
 
 	1. Blind Faith
 	2. False hope
