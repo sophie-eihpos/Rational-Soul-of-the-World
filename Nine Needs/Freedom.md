@@ -52,4 +52,10 @@ A positive manifestation of the freedom need produces insightful, imaginative, a
 
 ###7 Levels of Freedom
 
-1) Destructive irresponsibility   2) Aimless/Unfocused  3) Released/unshackled  4) Mental liberation  5) Emotional liberation  6) Choosing freely  7) Realization of unlimited potential
+1. Destructive irresponsibility
+2. Aimless/Unfocused
+3. Released/unshackled
+4. Mental liberation
+5. Emotional liberation
+6. Choosing freely
+7. Realization of unlimited potential
