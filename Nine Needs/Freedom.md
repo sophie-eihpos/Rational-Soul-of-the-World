@@ -1,6 +1,10 @@
 Independence and spontaneity are the chief components of this need.  The structural confinements of working 9-5, along with the commitments and deadlines often imposed in such lifestyles, are heavily frowned upon by people who seek this form of independence.  People with a need for Freedom seek mobility and the luxury of having and making individual choices.  The denial of these choices and the personal freedom that comes with them can create much unhappiness.  In a nutshell, these people do not like to have rules imposed upon them.  
 
-In the positive pole of independence, these people are self-confident, responsible, and independent thinkers who possess a high self-esteem.  In the negative pole they can literally run away from responsibility, avoid relationships, distance themselves from others, and painfully deprive themselves of achieving true intimacy. To corrupt the words of John Locke, they can truly become an island.
+####In the positive pole of independence
+- these people are self-confident, responsible, and independent thinkers who possess a high self-esteem.
+
+####In the negative pole
+- they can literally run away from responsibility, avoid relationships, distance themselves from others, and painfully deprive themselves of achieving true intimacy. To corrupt the words of John Locke, they can truly become an island.
 
 If you are in a relationship with someone who has this need, learn to give them breathing room.  They may initially shy away from commitment, but if you grant them the carte blanche of free will and avoid rules and restrictions that fearfully try to bind their wandering spirit, they will love you for it and your relationship will prosper. 
 

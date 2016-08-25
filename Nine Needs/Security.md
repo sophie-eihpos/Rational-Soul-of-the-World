@@ -24,16 +24,16 @@ Finding an attainable goal can be the first step towards re-balancing the 1st ch
 
 Positive affirmations to try are:
 
-    - I am safe and protected.
-    - I am loved.
-    - I release all negativity from my life.
+- I am safe and protected.
+- I am loved.
+- I release all negativity from my life.
 
 ### 7 Levels of Security
 
-	1. Blind Faith
-	2. False hope
-	3. Clinging to tradition
-	4. Security based on theory
-	5. Security based on reliable sources
-	6. Security based on experience/intuition
-	7. Trust in Tao
+1. Blind Faith
+2. False hope
+3. Clinging to tradition
+4. Security based on theory
+5. Security based on reliable sources
+6. Security based on experience/intuition
+7. Trust in Tao

@@ -16,21 +16,25 @@ Adventure can manifest in many different ways, from a love of traveling, to an e
 
 This chakra focuses on the emotional self and is driven in the pursuit of pleasurable experiences, both sensual and sexual. In short, the main goal is to enjoy life. This makes for a nice partnership with the need for Adventure.
 
-On the positive side, this chakra/need combination leads to creative and resourceful people who live life fully and with gusto. In the negative, hedonistic behavior can take root. There can be great suffering in life and difficulty in letting go of negative attitudes. Examining the root causes of emotional distress can be the first step towards healing. Finding something that is enjoyed and doing it passionately can also help in dissipating negative energy. Exploring the four pillars, especially True Play, can be of enormous assistance here.
+####On the positive side
+- this chakra/need combination leads to creative and resourceful people who live life fully and with gusto.
+
+####In the negative
+- hedonistic behavior can take root. There can be great suffering in life and difficulty in letting go of negative attitudes. Examining the root causes of emotional distress can be the first step towards healing. Finding something that is enjoyed and doing it passionately can also help in dissipating negative energy. Exploring the four pillars, especially True Play, can be of enormous assistance here.
 
 Helpful affirmations are:
 
-    - Life feels great.
-    - I love myself and I am loved by others.
-    - I am supremely happy with the way my life is unfolding.
+- Life feels great.
+- I love myself and I am loved by others.
+- I am supremely happy with the way my life is unfolding.
 
 
 ### 7 Levels of Adventure
 
-	1. Destructive drama
-	2. Glamour/Addictions/Adrenaline rush
-	3. Excitement of senses (drugs/sex)
-	4. Stimulation of mind/learning
-	5. Self/Inner discovery
-	6. Essence contact
-	7. Enlightenment/Presence
+1. Destructive drama
+2. Glamour/Addictions/Adrenaline rush
+3. Excitement of senses (drugs/sex)
+4. Stimulation of mind/learning
+5. Self/Inner discovery
+6. Essence contact
+7. Enlightenment/Presence
