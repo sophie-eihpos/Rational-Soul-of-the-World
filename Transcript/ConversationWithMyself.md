@@ -1,5 +1,7 @@
 ###Conversation with Myself - Alan Watts
 
+[Conversation with Myself](https://www.youtube.com/watch?v=c2mvaYaPbto)
+
 It’s astonishing...all this is only twenty or thirty minutes from the heart of San Francisco. Not a human habitation in sight anywhere. I’ve been living out here for some months; to write, and to absorb an atmosphere that is different from the city. To try and find out what is the essential difference between the world of nature and the world of man. Because there’s an obvious difference, like the difference of artistic styles. No one for example would confuse a painting by Leonardo with a painting by Picasso, or music by Bach with music by Shostakovich .. In the same way, there seems to be a complete difference of style between the things that human beings do and the things that nature does, even though human beings are themselves part of nature.
 
 On the one hand, nature is wiggling. Everything wiggles. The outlines of the hills. The shapes of the trees. The way the wind brushes the grass. The clouds. Tracts of streams. It all wiggles. And for some reason or other, we find wiggly things very difficult to keep track of.
