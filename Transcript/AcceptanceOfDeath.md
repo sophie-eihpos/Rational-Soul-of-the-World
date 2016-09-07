@@ -1,4 +1,4 @@
-###Death - Alan Watts [(6 January 1915 – 16 November 1973):] Source: LYBIO.net
+###Acceptance Of Death - Alan Watts [(6 January 1915 – 16 November 1973):] Source: LYBIO.net
 
 [Conversation with Myself](https://www.youtube.com/watch?v=qK1BJkBJdtY)
 
