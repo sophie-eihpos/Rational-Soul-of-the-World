@@ -28,7 +28,6 @@ Helpful affirmations are:
 - I love myself and I am loved by others.
 - I am supremely happy with the way my life is unfolding.
 
-
 ### 7 Levels of Adventure
 
 1. Destructive drama

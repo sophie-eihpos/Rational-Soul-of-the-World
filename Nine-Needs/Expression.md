@@ -10,10 +10,10 @@ On the other hand, sometimes expression will exceed the boundaries of good taste
 
 ###7 Levels of Power
 
-1) Total Destruction
-2) Destructive Acts
-3) Infamy/Shock Others
-4) Work Projects
-5) Entertain
-6) Artistic Self Expression
-7) Renaissance Person - Full Use of Creativity
+1. Total Destruction
+2. Destructive Acts
+3. Infamy/Shock Others
+4. Work Projects
+5. Entertain
+6. Artistic Self Expression
+7. Renaissance Person - Full Use of Creativity
