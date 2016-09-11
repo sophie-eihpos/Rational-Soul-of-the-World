@@ -40,8 +40,23 @@ Because of their inherent humility, not many Servers rise to prominence in the w
 
 -- Phill Wittmeyer
 
+####More About The Server
 
+It has never been a secret in the spiritual community that service to others is the fastest road to evolution. It is of little surprise then that the role of Server comprises the highest percentage of the world's population.
 
+Servers are practical, competent, and productive workers who perform a valuable service for us all -- they fulfill our needs. Placing the needs of others before their own, the Server takes care of us, and in so doing, starts a domino effect that honorably assists in meeting the needs for all of humanity.
+
+Rarely seeking the limelight, Servers love to work behind the scenes and inspire us on a one to one level. They are charitable people who are quick to take on the problems of others if they feel it will ease any suffering. Generally reserved in nature, Servers are not prone to wild behavior or extreme exaggeration, instead seeking those "simple pleasures for simple folks." Historically the Server might have been best exemplified in the biblical quotation "the meek shall inherit the earth." But possibly the greatest tribute to the humble Server was accorded by the American composer, Aaron Copland, in his composition, "Fanfare for the Common Man."
+
+Excelling in any of the service occupations, Servers make good doctors, nurses, teachers, diplomats, and have become indefatigable workers in the retail industry. Servers instinctively know they are gifted in the area of meeting the needs of others, and therefore can feel frustrated if they are not allowed to serve. There is a similarity with the King in the fact that Servers like to "control" a situation, or be in charge of how our needs should be met. It is not unusual then to see a Server adopt a "my way or the highway" attitude if they are not allowed to call the shots in situations related to their services. Frustrated Servers can become angry, or in worst case scenarios, highly manipulative or combative if they are not allowed to control what they feel they do best. In domestic settings, Servers will often secretly brood if their services are unappreciated, lending credence to the stereotypes of lonely, downtrodden housewives so often swept under the societal rug.
+
+Generally sweet in nature and self-effacing in their work, Servers are somewhat disengaged when expressing emotional connections, choosing to demonstrate their love for us by doing things that once again, fulfill our needs. For anyone who has had a Server parent, they know that during childhood their creature comforts were lovingly provided; dental appointments were never forgotten; a favorite refreshment or candy bar was always waiting in the refrigerator after school; and despite heated objections, it was a given that we could expect parental escort to social events during those tumultuous adolescent years. Some of us might wish such parental restrictions had not been so rigidly enforced, and this leads to speculation regarding the percentage of children with Server parents who grew up later to have Stubbornness as a Chief Feature. Of course, there are other roles and combinations of overleaves that can contribute to the creation of the controlling parent, but control will always be an issue for the Server.
+
+Another by-product of the Server parent is that excessive doting and attention can lead some children to grow up thinking their needs will always be met. The well intentioned Server can so effectively shield the child from the realities of the world that the child later struggles in adulthood when faced with issues of self-sufficiency and independence.
+
+Regardless, it's important to cherish the Server for the well intentioned work they do, and try to avoid the natural inclination to take advantage of their services. Servers can easily start to feel like doormats after awhile, and with their unquestioning willingness to take of care of both our physical and spiritual needs, it is little wonder they have so often been victimized or enslaved by the occasionally less than scrupulous predators that enjoy preying on such noble intentions. Servers are beautiful beings that deserve much praise and gratitude for the wonderful contributions they give to society, and the world.
+
+-- David Gregg
 
 
 
