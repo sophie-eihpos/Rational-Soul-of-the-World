@@ -17,4 +17,3 @@ This need expresses itself through skin contact, expenditures of time, and socia
 5. mutual profit (win-win)
 6. understanding
 7. teaching/learning
-
